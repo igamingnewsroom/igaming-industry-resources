@@ -17,7 +17,7 @@ A curated collection of resources covering the global iGaming industry.
 
 For the latest iGaming industry news, analysis and market updates:
 
-[Visit iGaming Newsroom](https://igaming-newsroom.com/))
+[Visit iGaming Newsroom](https://igaming-newsroom.com/)
 
 ## Industry Resources
 
